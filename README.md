@@ -14,9 +14,8 @@ KEY INSIGHTS
 
  
 
-                                                                  OBSERVATIONS
+OBSERVATIONS                                                                 
 
- 
 
 1.Phd holder among the staff are very few while bachelor is the highest.
 
